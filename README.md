@@ -1,0 +1,2 @@
+# EDA-Assignment-
+ALL PAST ASSIGNMENTS IN ONE
